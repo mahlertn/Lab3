@@ -1,7 +1,7 @@
 Englewood to Breckenridge
 ======
 #### Description:
-This route will take you from Englewood, a small town where I grew up located South of Denver, to a tourist town in the Rocky Mountains.
+This route will take you from Englewood, a small town located South of Denver, to a tourist town in the Rocky Mountains.
 
 #### About the Stops:
 *The first stop* on this route is in Idaho Springs. Home to the Colorado Mountain Pie, Beau Jo's pizza is a must-eat. The Mountain pie has hand-rolled edges which must be dipped in honey when eating.
